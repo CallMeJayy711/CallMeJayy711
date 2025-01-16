@@ -1,4 +1,4 @@
-Hola, my name is Jared, call me Jay for short like the letter J
+Hi, my name is Jared, call me Jay for short like the letter J and
 im just trying to figure out how to code even if it hurts my brain
 im 22 years old unfortunately
 i like to wear hoodies and sweat pants cuz its comfy
